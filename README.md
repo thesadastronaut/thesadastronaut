@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @thesadastronaut
+- I also go by, Matt
+- 👀 I’m interested in making websites & applications do things
+- 🌱 I’m currently re-doing a Udemy Bootcamp to ensure my knowledge of Web Technologies is as up to date as it can be.
+- 💞️ I’m looking to collaborate on projects that challenge my abilities and teach me to work remotely with a team.
+- 📫 How to reach me, current email is: matty.aytch@gmail.com - // to be updated // 
